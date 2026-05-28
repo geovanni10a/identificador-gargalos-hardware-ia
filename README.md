@@ -1,0 +1,1 @@
+# identificador-gargalos-hardware-ia
